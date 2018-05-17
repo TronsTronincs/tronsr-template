@@ -1,7 +1,7 @@
 ## Founder
 
-Name: [name]
-Role: [role]
+Name: [Robert]
+Role: [Master mind]
 
 ## Team Member 1
 
