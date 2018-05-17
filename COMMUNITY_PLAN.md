@@ -1,1 +1,3 @@
 Describe the plan to support the community
+SCholorships - We will be making several scholerships to the local community in the name if TRON. This will switch over to our future youth program. 
+ Recruitment/Tallent - Our mission is to make TRON the most powerful Crytpcurrency in the world. At the same time we will be evdeavoring into our own mission. We want to create our own Coin on the TRON block. We will need to have some of the best Tallent working for us. The meaning of being on the TRON net is to be a VERY strong presence. The better and bigger we are the bigger and bette TRON is. There are recruitment costs for finding out of the box tallent.  
