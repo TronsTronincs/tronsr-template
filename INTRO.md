@@ -6,8 +6,11 @@ First and fore most we are a small group with HUGE expectations, we would love t
 Hello, my name is Robert. I am head of all operations here at TronsTronics. I have 26 years of business management. I have over seen several well established operators as a regional manager. Working with P&Ls, managers, marketing teams, HR department and several other divisions we are the best candidate to make TRON NOT only a house hold name but a solid part of cryptocurrency. I am lookng for this adventure with Tron as we grow as a community. We truly look forward to expand the horizons of tron within our community. 
 
 Follow us for news and updates:
+
 https://Twitter.com/tronstronics
+
 https://T.me/tronstronics
+
 https://www.facebook.com/groups/2000248246713992/
 
 The definition of representative is : a person or group to act or speak for another or others. 
