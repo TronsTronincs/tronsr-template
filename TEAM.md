@@ -1,14 +1,15 @@
 ## Founder
 
-Name: [Robert]
-Role: [Master mind]
+Name: Robert
+Role: Founder,Team Leader, IT Developer
 
 ## Team Member 1
 
-Name: [name]
-Role: [role]
+Name: Luke
+Role: Business investing consultant. IT technician 
 
 ## Team Member 2
 
-Name: [name]
-Role: [role]
+Name: Haley
+Role: Marketing, Head of community outreach 
+
