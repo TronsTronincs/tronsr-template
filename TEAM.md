@@ -1,15 +1,13 @@
 ## Founder
 
-Name: Robert
-Role: Founder,Team Leader, IT Developer
+Robert :
+Founder - Team Leader - IT engineer
 
-## Team Member 1
 
-Name: Luke
-Role: Business investing consultant. IT technician 
+Luke : 
+Business - investing consultant - IT Developer
 
-## Team Member 2
 
-Name: Haley
-Role: Marketing, Head of community outreach 
+Haley : 
+Social media manager - Head markerting manager 
 
