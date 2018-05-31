@@ -21,9 +21,9 @@ Investing in the future
 
 -We will own a percentage of each company per investment TRX ($) 
 
-- We will be giving each company full access to our IT team, this means that they will have the best web sites the world, business analysis to make them more competitive in the market place.
+-We will be giving each company full access to our IT team, this means that they will have the best web sites the world, business analysis to make them more competitive in the market place.
 
-- Each business will agree to use the TRX coin and will promote to use of it on every website and location.
+-Each business will agree to use the TRX coin and will promote to use of it on every website and location.
 
 -Each company will work with our team to expand operations, we will have a clear business plan on how to expand.
 
